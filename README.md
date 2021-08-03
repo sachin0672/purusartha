@@ -1,0 +1,2 @@
+# purusartha
+purusartha-gausala
